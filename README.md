@@ -1,2 +1,2 @@
 # Who am I?
-Discover [here](https://mathms.github.io) my friend.🚀
+Discover [here](https://mathms.github.io) my friend.
